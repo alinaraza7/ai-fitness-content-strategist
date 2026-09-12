@@ -1,0 +1,3 @@
+# Trend Brief Template
+
+<!-- TODO -->

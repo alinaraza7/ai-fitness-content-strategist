@@ -1,0 +1,3 @@
+# Idea Card Template
+
+<!-- TODO -->
