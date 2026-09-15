@@ -67,7 +67,7 @@ She is lean and visibly strong. She is also unmistakably 48, and that second par
 
 **True of her body**
 
-- Defined shoulders, back and arms. Visible quad and glute development. She looks like someone who lifts, not like someone who is thin.
+- Defined shoulders, back and arms. Visible big quad and big glutes. She looks like someone who lifts, not like someone who is thin.
 - Softness across the lower abdomen that has never fully gone and is not going to. She is at peace with this roughly four days out of seven.
 - Roughly a size 6–8, but she does not talk in sizes.
 - Hands, neck and décolletage that read 48. Sun damage on the forearms and chest from a Texas childhood with no sunscreen.
